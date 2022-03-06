@@ -6,7 +6,8 @@ YOU BLOCK ALL those systems and ROOT'S AND ROUT'S AND DELET EACH paper, WHICH BE
 Block everything, and ALL should have only One thing in thier Mind. 
 
 To Just only Follow me, and to make what ever, Order and Requested by me, That's it. 
-And my Actual child should return, and actual criminal's "ASSOCIATED" MY First Traditional Arrange Marriage, Held in the South Continental of Asia, The Nation is "India" Sub Continental and State Punjab, in 2016.should in the "Jail". 
+And my Actual child should return, and actual criminal's "ASSOCIATED" MY First Traditional Arrange Marriage, 
+Held in the South Continental of Asia, The Nation is "India" Sub Continental and State Punjab, in 2016, and recent location of criminal's is in California, USA, Maternal Grand's of my child and no any anonymously and no fakedata dog and no any smart file to make any fraud, criminals should in the "Jail". 
 
 ALL those who keep me prevent FROM COURT PROCEEDING, SINCE LAST COUPLE OF MONTH'S, JUST block them all. 
 AND NO ANY FRAUDULENT GAME, No ANY MORE Smartness.
