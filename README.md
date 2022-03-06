@@ -3,7 +3,7 @@ PINCH her all, and PULL FROM THE HAIR'S AND GET HER(S) to me, ALONG WITH Childre
 NO MORE Excuses, NO IF NO But just ONLY "ME" THE FATHER OF MY SON, and my "Son" Want's ME AND I WANT HIM,
 NO Court, NO ANY Official, NO Any JUDICIAL, NO ANY POWER SHOULD STOP MY CHILD, 
 YOU BLOCK ALL those systems and ROOT'S AND ROUT'S AND DELET EACH paper, WHICH BECAME REASON TO keep CHILD AWAY, 
-Block everything, and ALL should have only One thing in thir Mind. 
+Block everything, and ALL should have only One thing in thier Mind. 
 
 To Just only Follow me, and to make what ever, Order and Requested by me, That's it. 
 And my Actual child should return, and actual criminal's "ASSOCIATED" MY First Traditional Arrange Marriage, Held in the South Continental of Asia, The Nation is "India" Sub Continental and State Punjab, in 2016.should in the "Jail". 
